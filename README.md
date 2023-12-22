@@ -48,4 +48,5 @@ Rickenbacker 4003 Bass|~$2500|Not natural maple finish
 |:--:|:--:|:--:|
 [Desk pad](https://store.gamersnexus.net/products/15-yr-mouse-mat)|$30|Don't need an autographed one
 [Solar powered bluetooth keyboard](https://www.logitech.com/en-us/products/keyboards/k750-wireless-solar.920-002912.html?utm_source=google&srsltid=AfmBOoqa8Bi7y1LdI1TZv2DODoSpGqnMetmB-yNwBFFX9rvlzdkqOBhePQc)|$55| Seems silly, but batteries in these things are horrible always. Why not bypass that? 
+[Kayak Paddle](https://bendingbranches.com/collections/kayak-fishing-paddles/products/angler-ace-plus-discontinued)|$200| I'd like one with measurements on the paddle handle
 
