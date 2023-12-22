@@ -41,9 +41,11 @@ A wishlist for Xmas, Birthday and beyond that goes beyond amazon.
 [Bass distortion pedal](https://reverb.com/p/zvex-basstortion)|~$200|Specifically, this pedal. Vendor doesn't matter, but it's a hard to find pedal. 
 [Bluetooth adapters for headset](https://www.linsoul.com/products/kz-az10)|$42.99| I have the headphones, bluetooth would be great for these
 Rickenbacker 4003 Bass|~$2500|Not natural maple finish
+[In-ear monitoring system](https://www.amazon.com/LEKATO-Transmitter-Automatic-Rehearsal-Performance/dp/B0B3DR71RY)|$48| One reciever and transmitter please
 
 ## Random Stuff
 |Item|Price|Notes|
 |:--:|:--:|:--:|
 [Desk pad](https://store.gamersnexus.net/products/15-yr-mouse-mat)|$30|Don't need an autographed one
 [Solar powered bluetooth keyboard](https://www.logitech.com/en-us/products/keyboards/k750-wireless-solar.920-002912.html?utm_source=google&srsltid=AfmBOoqa8Bi7y1LdI1TZv2DODoSpGqnMetmB-yNwBFFX9rvlzdkqOBhePQc)|$55| Seems silly, but batteries in these things are horrible always. Why not bypass that? 
+
