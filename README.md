@@ -18,7 +18,6 @@ A wishlist for Xmas, Birthday and beyond that goes beyond amazon.
 [Splitshot molds](https://www.lurepartsonline.com/Rem-SplitShot-Mold-RM-1438)|$48|
 [Silicone Skirt Material](https://www.lurepartsonline.com/Lure-Making/Skirts-Rattles-Dressings/Skirt-Making-Materials/Silicone-Material?page=1)|~$3.00 pack| Any colors welcome! 
 [Skirt collars](https://www.lurepartsonline.com/01-Regular-Skirt-Collars)| $3.5| Any colors welcome - but a mix is cool too! 
-[Fishing Scissors](https://www.amazon.com/dp/B0BTL9X7H5/?coliid=I12O4BVKXXLV0K&colid=2586DLHB05EVL&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)|$15| Any small scissors **wish sheath** will be appreciated! 
 [Swivels](https://www.lurepartsonline.com/Crane-Swivels)|~$2|I need size 12 and size 10 - color doesn't matter
 [Snaps](https://www.lurepartsonline.com/Duo-Lock-Snaps)|$1.5/10 pack| I need size 1 and 3
 [Lure Powder Coating Paint](https://www.lurepartsonline.com/Pro-Tec-Powder-Paint-2oz)|~$8| Pick your favorite colors! (Chartreuse and white a great ones though)
