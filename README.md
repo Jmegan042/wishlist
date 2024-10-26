@@ -5,6 +5,20 @@ A wishlist for Xmas, Birthday and beyond that goes beyond amazon.
 ## Fishing Stuff
 |Item|Price|Notes|
 |:--:|:--:|:--:|
+[Swivels](https://www.lurepartsonline.com/Crane-Swivels)|~$2|I need size 12 and size 10 - color doesn't matter
+[Snaps](https://www.lurepartsonline.com/Duo-Lock-Snaps)|$1.5/10 pack| I need size 1 and 3
+[Steelhead fishing hooks](https://www.lurepartsonline.com/Gamakatsu-T10-6HB-Salmon-Steelhead-Fly-Hooks-Black-Black_2)|$10| Sizes 2->6
+[Steelhead Fishing Beads](https://www.lurepartsonline.com/Fusion-Blood-Drop-Egg-Beads-UV2?quantity=1&custcol_beads_eyes_paint_size=164&custcol_beads_eyes_paint_color=214)|$4/20 pack| Any color - or a few! 8mm or 10mm please. 
+[Steelhead Fishing Beads](https://troutbeads.com/product-category/troutbeads/)|$3 pack (40 or 50 Count)|Any Color 6mm, 8mm, or 10mm
+
+### Lure Making/Fly Tying
+|Item|Price|Notes|
+|:--:|:--:|:--:|
+[Fly Tying Toolkit](https://www.madriveroutfitters.com/p-16053-loon-complete-fly-tying-tool-kit.aspx)|$120|The Loon kit (link goes there) or the [umpqua one](https://www.madriveroutfitters.com/p-18776-umpqua-dreamstream-master-tool-kit.aspx)
+[Fly Tying Vise](https://www.madriveroutfitters.com/p-19855-griffin-odyssey-spider-cam.aspx)|$100-$150| A vise is essential, and one that has a rotating clamp is very nice. Cheaper options on [Amazon](https://www.amazon.com/Kingfisher-Fly-Fishing-Clarkfork-Rotary/dp/B0BXBM8PG9/)
+[Lure Powder Coating Paint](https://www.lurepartsonline.com/Pro-Tec-Powder-Paint-2oz)|~$8| Pick your favorite colors! (Chartreuse and white a great ones though)
+[Lure Powder Coating SPARKLING Paint](https://www.lurepartsonline.com/Pro-Flake-Powder-Glitter-Coat-1-5oz)|$8| These go on top of the other paint - pick a cool color! 
+[Lure Painting Marker](https://www.lurepartsonline.com/Quick-Coat-Lure-Markers)|$6| Black and white please! 
 [Spinnerbait Mold](https://www.lurepartsonline.com/UltraMinnow-Spin-Mold-SJU-3-SA) |$56|
 [Looped eye spinnerbait wire](https://www.lurepartsonline.com/Looped-Eye-Spinnerbait-Forms)|~$6| Need 1/2,1/4,3/8 oz varieties (0.035"-0.045") 
 [Clevises](https://www.lurepartsonline.com/Easy-Spin-Clevises)|~$4| Size 3 and 4, nickle please
@@ -16,15 +30,7 @@ A wishlist for Xmas, Birthday and beyond that goes beyond amazon.
 [Dropshot Mold](https://www.lurepartsonline.com/DropShot-Sinker-Mold-FDS-8-A)| $48| Goes with swivels
 [Palmer Hot-pot](https://www.lurepartsonline.com/Palmer-Hot-Pot-2)|$65| Goes with all molds (for making fishing supplies) - fancier ones do exist
 [Splitshot molds](https://www.lurepartsonline.com/Rem-SplitShot-Mold-RM-1438)|$48|
-[Swivels](https://www.lurepartsonline.com/Crane-Swivels)|~$2|I need size 12 and size 10 - color doesn't matter
-[Snaps](https://www.lurepartsonline.com/Duo-Lock-Snaps)|$1.5/10 pack| I need size 1 and 3
-[Lure Powder Coating Paint](https://www.lurepartsonline.com/Pro-Tec-Powder-Paint-2oz)|~$8| Pick your favorite colors! (Chartreuse and white a great ones though)
-[Lure Powder Coating SPARKLING Paint](https://www.lurepartsonline.com/Pro-Flake-Powder-Glitter-Coat-1-5oz)|$8| These go on top of the other paint - pick a cool color! 
-[Lure Painting Marker](https://www.lurepartsonline.com/Quick-Coat-Lure-Markers)|$6| Black and white please! 
-[Steelhead fishing hooks](https://www.lurepartsonline.com/Gamakatsu-T10-6HB-Salmon-Steelhead-Fly-Hooks-Black-Black_2)|$10| Sizes 2->6
 [Metal Beads](https://www.lurepartsonline.com/Solid-Brass-Beads)|~$2/10 pack| Need hole diameter >= .055", color is your pick! 
-[Steelhead Fishing Beads](https://www.lurepartsonline.com/Fusion-Blood-Drop-Egg-Beads-UV2?quantity=1&custcol_beads_eyes_paint_size=164&custcol_beads_eyes_paint_color=214)|$4/20 pack| Any color - or a few! 8mm or 10mm please. 
-[Steelhead Fishing Beads](https://troutbeads.com/product-category/troutbeads/)|$3 pack (40 or 50 Count)|Any Color 6mm, 8mm, or 10mm
 
 
 ## Clothing
