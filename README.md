@@ -16,8 +16,6 @@ A wishlist for Xmas, Birthday and beyond that goes beyond amazon.
 [Dropshot Mold](https://www.lurepartsonline.com/DropShot-Sinker-Mold-FDS-8-A)| $48| Goes with swivels
 [Palmer Hot-pot](https://www.lurepartsonline.com/Palmer-Hot-Pot-2)|$65| Goes with all molds (for making fishing supplies) - fancier ones do exist
 [Splitshot molds](https://www.lurepartsonline.com/Rem-SplitShot-Mold-RM-1438)|$48|
-[Silicone Skirt Material](https://www.lurepartsonline.com/Lure-Making/Skirts-Rattles-Dressings/Skirt-Making-Materials/Silicone-Material?page=1)|~$3.00 pack| Any colors welcome! 
-[Skirt collars](https://www.lurepartsonline.com/01-Regular-Skirt-Collars)| $3.5| Any colors welcome - but a mix is cool too! 
 [Swivels](https://www.lurepartsonline.com/Crane-Swivels)|~$2|I need size 12 and size 10 - color doesn't matter
 [Snaps](https://www.lurepartsonline.com/Duo-Lock-Snaps)|$1.5/10 pack| I need size 1 and 3
 [Lure Powder Coating Paint](https://www.lurepartsonline.com/Pro-Tec-Powder-Paint-2oz)|~$8| Pick your favorite colors! (Chartreuse and white a great ones though)
@@ -26,6 +24,7 @@ A wishlist for Xmas, Birthday and beyond that goes beyond amazon.
 [Steelhead fishing hooks](https://www.lurepartsonline.com/Gamakatsu-T10-6HB-Salmon-Steelhead-Fly-Hooks-Black-Black_2)|$10| Sizes 2->6
 [Metal Beads](https://www.lurepartsonline.com/Solid-Brass-Beads)|~$2/10 pack| Need hole diameter >= .055", color is your pick! 
 [Steelhead Fishing Beads](https://www.lurepartsonline.com/Fusion-Blood-Drop-Egg-Beads-UV2?quantity=1&custcol_beads_eyes_paint_size=164&custcol_beads_eyes_paint_color=214)|$4/20 pack| Any color - or a few! 8mm or 10mm please. 
+[Steelhead Fishing Beads](https://troutbeads.com/product-category/troutbeads/)|$3 pack (40 or 50 Count)|Any Color 6mm, 8mm, or 10mm
 
 
 ## Clothing
