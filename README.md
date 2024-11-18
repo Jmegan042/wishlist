@@ -15,7 +15,7 @@ A wishlist for Xmas, Birthday and beyond that goes beyond amazon.
 |Item|Price|Notes|
 |:--:|:--:|:--:|
 [Fly Tying Toolkit](https://www.madriveroutfitters.com/p-16053-loon-complete-fly-tying-tool-kit.aspx)|$120|The Loon kit (link goes there) or the [umpqua one](https://www.madriveroutfitters.com/p-18776-umpqua-dreamstream-master-tool-kit.aspx)
-[Fly Tying Vise](https://www.madriveroutfitters.com/p-19855-griffin-odyssey-spider-cam.aspx)|$100-$150| A vise is essential, and one that has a rotating clamp is very nice. Cheaper options on [Amazon](https://www.amazon.com/Kingfisher-Fly-Fishing-Clarkfork-Rotary/dp/B0BXBM8PG9/)
+[Fly Tying Vise](https://www.madriveroutfitters.com/p-19855-griffin-odyssey-spider-cam.aspx)|$100-$150| An upgraded vice would be cool, and one that has a rotating clamp is very nice. 
 [Lure Powder Coating Paint](https://www.lurepartsonline.com/Pro-Tec-Powder-Paint-2oz)|~$8| Pick your favorite colors! (Chartreuse and white a great ones though)
 [Lure Powder Coating SPARKLING Paint](https://www.lurepartsonline.com/Pro-Flake-Powder-Glitter-Coat-1-5oz)|$8| These go on top of the other paint - pick a cool color! 
 [Lure Painting Marker](https://www.lurepartsonline.com/Quick-Coat-Lure-Markers)|$6| Black and white please! 
@@ -31,6 +31,7 @@ A wishlist for Xmas, Birthday and beyond that goes beyond amazon.
 [Palmer Hot-pot](https://www.lurepartsonline.com/Palmer-Hot-Pot-2)|$65| Goes with all molds (for making fishing supplies) - fancier ones do exist
 [Splitshot molds](https://www.lurepartsonline.com/Rem-SplitShot-Mold-RM-1438)|$48|
 [Metal Beads](https://www.lurepartsonline.com/Solid-Brass-Beads)|~$2/10 pack| Need hole diameter >= .055", color is your pick! 
+[Egg Hooks](https://troutbeads.com/shop/beadhooks/bh10-100/)|$28/pack of 100| Need size 10 and 8
 
 
 ## Clothing
