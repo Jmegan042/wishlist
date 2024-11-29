@@ -10,11 +10,13 @@ A wishlist for Xmas, Birthday and beyond that goes beyond amazon.
 [Steelhead fishing hooks](https://www.lurepartsonline.com/Gamakatsu-T10-6HB-Salmon-Steelhead-Fly-Hooks-Black-Black_2)|$10| Sizes 2->6
 [Steelhead Fishing Beads](https://www.lurepartsonline.com/Fusion-Blood-Drop-Egg-Beads-UV2?quantity=1&custcol_beads_eyes_paint_size=164&custcol_beads_eyes_paint_color=214)|$4/20 pack| Any color - or a few! 8mm or 10mm please. 
 [Steelhead Fishing Beads](https://troutbeads.com/product-category/troutbeads/)|$3 pack (40 or 50 Count)|Any Color 6mm, 8mm, or 10mm
+Fishing Waders (stocking, not booted)| Varies Greatly| Please neoprene or goretex - it gets cold out there! 
 
 ### Lure Making/Fly Tying
 |Item|Price|Notes|
 |:--:|:--:|:--:|
 [Fly Tying Toolkit](https://www.madriveroutfitters.com/p-16053-loon-complete-fly-tying-tool-kit.aspx)|$120|The Loon kit (link goes there) or the [umpqua one](https://www.madriveroutfitters.com/p-18776-umpqua-dreamstream-master-tool-kit.aspx)
+[Fly Tying Bobbin](https://www.lurepartsonline.com/Terra-Deluxe-Silver-Finish-Ceramic-Bobbin)|~$10|This is an economy bobbin, but has ceramic inserts to keep the thread from fraying (I have this problem)
 [Fly Tying Vise](https://www.madriveroutfitters.com/p-19855-griffin-odyssey-spider-cam.aspx)|$100-$150| An upgraded vice would be cool, and one that has a rotating clamp is very nice. 
 [Lure Powder Coating Paint](https://www.lurepartsonline.com/Pro-Tec-Powder-Paint-2oz)|~$8| Pick your favorite colors! (Chartreuse and white a great ones though)
 [Lure Powder Coating SPARKLING Paint](https://www.lurepartsonline.com/Pro-Flake-Powder-Glitter-Coat-1-5oz)|$8| These go on top of the other paint - pick a cool color! 
@@ -64,4 +66,5 @@ Rickenbacker 4003 Bass|~$2500|Not natural maple finish
 |Item|Price|Notes|
 |:--:|:--:|:--:|
 [Kayak Paddle](https://bendingbranches.com/collections/kayak-fishing-paddles/products/angler-ace-plus-discontinued)|$200| I'd like one with measurements on the paddle handle
+[Guided Steelhead Fishing](https://thenorthernangler.com/pages/guide-services) | $375(1/2 day)-500 (full day)| Price is for the boat, so someone else can come too! These guys are in Traverse City. 
 
