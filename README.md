@@ -15,24 +15,12 @@ Fishing Waders (stocking, not booted)| Varies Greatly| Please neoprene or gorete
 ### Lure Making/Fly Tying
 |Item|Price|Notes|
 |:--:|:--:|:--:|
-[Fly Tying Toolkit](https://www.madriveroutfitters.com/p-16053-loon-complete-fly-tying-tool-kit.aspx)|$120|The Loon kit (link goes there) or the [umpqua one](https://www.madriveroutfitters.com/p-18776-umpqua-dreamstream-master-tool-kit.aspx)
-[Fly Tying Bobbin](https://www.lurepartsonline.com/Terra-Deluxe-Silver-Finish-Ceramic-Bobbin)|~$10|This is an economy bobbin, but has ceramic inserts to keep the thread from fraying (I have this problem)
-[Fly Tying Vise](https://www.madriveroutfitters.com/p-19855-griffin-odyssey-spider-cam.aspx)|$100-$150| An upgraded vice would be cool, and one that has a rotating clamp is very nice. 
-[Lure Powder Coating Paint](https://www.lurepartsonline.com/Pro-Tec-Powder-Paint-2oz)|~$8| Pick your favorite colors! (Chartreuse and white a great ones though)
 [Lure Powder Coating SPARKLING Paint](https://www.lurepartsonline.com/Pro-Flake-Powder-Glitter-Coat-1-5oz)|$8| These go on top of the other paint - pick a cool color! 
 [Lure Painting Marker](https://www.lurepartsonline.com/Quick-Coat-Lure-Markers)|$6| Black and white please! 
-[Spinnerbait Mold](https://www.lurepartsonline.com/UltraMinnow-Spin-Mold-SJU-3-SA) |$56|
-[Looped eye spinnerbait wire](https://www.lurepartsonline.com/Looped-Eye-Spinnerbait-Forms)|~$6| Need 1/2,1/4,3/8 oz varieties (0.035"-0.045") 
-[Clevises](https://www.lurepartsonline.com/Easy-Spin-Clevises)|~$4| Size 3 and 4, nickle please
-[Spinning Blades (colorado)](https://www.lurepartsonline.com/Economy-Colorado-Blades-Steel)|$12| Size 3,4, or 4.5 will be great! 
 [Colorado Blade Stickers](https://www.lurepartsonline.com/Holographic-Stickers?quantity=1&custcol_other_style=25&custcol_beads_eyes_paint_size=183&custcol_beads_eyes_paint_color=154)| $2| Silver or gold work great! 
-[Spinning Blades (willow)](https://www.lurepartsonline.com/Economy-Willow-Blades-Steel)|~$15| Sizes 4->5 would be great! 
-[Spinnerbait mold hooks](https://www.lurepartsonline.com/Mustad-32608-Spinnerbait-Hook)|~$2/pack| Need size 2,3 and 4
 [Dropshot Swivels](https://www.lurepartsonline.com/Drop-Shot-Swivels) | $12/100 pack| Goes with mold
 [Dropshot Mold](https://www.lurepartsonline.com/DropShot-Sinker-Mold-FDS-8-A)| $48| Goes with swivels
-[Palmer Hot-pot](https://www.lurepartsonline.com/Palmer-Hot-Pot-2)|$65| Goes with all molds (for making fishing supplies) - fancier ones do exist
 [Splitshot molds](https://www.lurepartsonline.com/Rem-SplitShot-Mold-RM-1438)|$48|
-[Metal Beads](https://www.lurepartsonline.com/Solid-Brass-Beads)|~$2/10 pack| Need hole diameter >= .055", color is your pick! 
 [Egg Hooks](https://troutbeads.com/shop/beadhooks/bh10-100/)|$28/pack of 100| Need size 10 and 8
 
 
@@ -49,6 +37,7 @@ Fishing Waders (stocking, not booted)| Varies Greatly| Please neoprene or gorete
 |:--:|:--:|:--:|
 [Bass distortion pedal](https://reverb.com/p/zvex-basstortion)|~$200|Specifically, this pedal. Vendor doesn't matter, but it's a hard to find pedal. 
 [Bluetooth adapters for headset](https://www.linsoul.com/products/kz-az10)|$43| I have the headphones, bluetooth would be great for these
+[Sans Amp Preamp Pedal](https://reverb.com/item/9887418-tech-21-sansamp-character-series-vt-bass-di)| ~$240| Used is fine! 
 Rickenbacker 4003 Bass|~$2500|Not natural maple finish
 [In-ear monitoring system](https://www.amazon.com/LEKATO-Transmitter-Automatic-Rehearsal-Performance/dp/B0B3DR71RY)|$48| One reciever and transmitter please
 [15 Ft XLR Cable](https://www.musiciansfriend.com/accessories/musicians-gear-lo-z-xlr-microphone-cable/338001000002000?rNtt=xlr%20cables&index=12)|$13 | 15 ft please, no need for the fancy cables
