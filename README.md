@@ -48,6 +48,7 @@ Rickenbacker 4003 Bass|~$2500|Not natural maple finish
 ## Computer Nerd Stuff
 |Item|Price|Notes|
 |:--:|:--:|:--:|
+[3D Printer](https://us.store.bambulab.com/products/p1s?id=583855874739507213)|$400| A big ticket item, but the best entry level one from all friend recommendations 
 [Desk pad](https://store.gamersnexus.net/products/15-yr-mouse-mat)|$30|Don't need an autographed one
 [Flight Sim Button Panel](https://www.logitechg.com/en-us/products/flight/flight-simulator-switch-panel.945-000030.html)|$99|Great starter button pad for flight sim
 [Solar powered bluetooth keyboard](https://www.logitech.com/en-us/products/keyboards/k750-wireless-solar.920-002912.html?utm_source=google&srsltid=AfmBOoqa8Bi7y1LdI1TZv2DODoSpGqnMetmB-yNwBFFX9rvlzdkqOBhePQc)|$55| Seems silly, but batteries in these things are horrible always. Why not bypass that? 
