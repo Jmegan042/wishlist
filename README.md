@@ -51,6 +51,8 @@ Rickenbacker 4003 Bass|~$2500|Not natural maple finish
 [Desk pad](https://store.gamersnexus.net/products/15-yr-mouse-mat)|$30|Don't need an autographed one
 [Flight Sim Button Panel](https://www.logitechg.com/en-us/products/flight/flight-simulator-switch-panel.945-000030.html)|$99|Great starter button pad for flight sim
 [Solar powered bluetooth keyboard](https://www.logitech.com/en-us/products/keyboards/k750-wireless-solar.920-002912.html?utm_source=google&srsltid=AfmBOoqa8Bi7y1LdI1TZv2DODoSpGqnMetmB-yNwBFFX9rvlzdkqOBhePQc)|$55| Seems silly, but batteries in these things are horrible always. Why not bypass that? 
+[Seeed Studio XIAO ESP32-C6](https://www.seeedstudio.com/Seeed-Studio-XIAO-ESP32C6-p-5884.html)|~$4 each| Little side projects always need microcontrollers! A few would be nice! 
+[Temp/Humidity Sensor](https://www.seeedstudio.com/Grove-Temperature-Humidity-Sensor-DHT11.html)|~$4 each| Sensor for temperature and humididty for side-projects. 
 
 ## Random Stuff
 |Item|Price|Notes|
