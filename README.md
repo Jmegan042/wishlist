@@ -30,7 +30,7 @@ Fishing Waders (stocking, not booted)| Varies Greatly| Please neoprene or gorete
 [Timberland Pro Boots](https://www.amazon.com/dp/B000XEWLO6/?coliid=I3NKV6O6EO3NTT&colid=2586DLHB05EVL&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)|$106|A mainstay at this point, size 10.5 or 11 (close enough for both)
 [Heat Tech Shirts](https://www.uniqlo.com/us/en/products/E461001-000/00?colorDisplayCode=00&sizeDisplayCode=004)|$6|Medium - black and white please
 [Airism Shirts](https://www.uniqlo.com/us/en/products/E454311-000/)| $14| Size M - black or white
-[Muck Boots](https://www.muckbootcompany.com/muck-forager-tall-unisex-17-inch-waterproof-pull-o/FOR000.html?color=00&width=M&size=110)|$60 | Tall muck boots, size 11's
+
 
 ## Music Stuff
 |Item|Price|Notes|
@@ -42,7 +42,8 @@ Rickenbacker 4003 Bass|~$2500|Not natural maple finish
 [In-ear monitoring system](https://www.amazon.com/LEKATO-Transmitter-Automatic-Rehearsal-Performance/dp/B0B3DR71RY)|$48| One reciever and transmitter please
 [15 Ft XLR Cable](https://www.musiciansfriend.com/accessories/musicians-gear-lo-z-xlr-microphone-cable/338001000002000?rNtt=xlr%20cables&index=12)|$13 | 15 ft please, no need for the fancy cables
 [18 Ft Instrument Cable](https://www.musiciansfriend.com/accessories/fender-deluxe-series-straight-to-angle-instrument-cable/l47917000003001)| $23| 18.6ft black tweed please
-[Volume Pedal](https://www.sweetwater.com/store/detail/FCV100V2--behringer-fcv100-v2-dual-mode-expression-pedal)| $39| 
+[Guitar Hangers](https://www.amazon.com/Hercules-GSP38WB-PLUS-Auto-Swivel-Yoke-Hanger/dp/B07BBNS4ZL?)|~$20/ea| Hercules brand please, the cheaper ones aren't up to snuff for Bass guitars.
+
 
 ## Computer Nerd Stuff
 |Item|Price|Notes|
@@ -56,4 +57,5 @@ Rickenbacker 4003 Bass|~$2500|Not natural maple finish
 |:--:|:--:|:--:|
 [Kayak Paddle](https://bendingbranches.com/collections/kayak-fishing-paddles/products/angler-ace-plus-discontinued)|$200| I'd like one with measurements on the paddle handle
 [Guided Steelhead Fishing](https://thenorthernangler.com/pages/guide-services) | $375(1/2 day)-500 (full day)| Price is for the boat, so someone else can come too! These guys are in Traverse City. 
+[Electronic Hearing Protection](https://www.amazon.com/Walkers-GWP-RSEM-MCCG-Hearing-Multi-Black/dp/B01AAH8CXY?)|~$39|Black and teal color combo, or just black. Please none of the 2A crap they're printing on. 
 
