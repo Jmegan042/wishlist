@@ -27,7 +27,6 @@ Fishing Waders (stocking, not booted)| Varies Greatly| Please neoprene or gorete
 ## Clothing
 |Item|Price|Notes|
 |:--:|:--:|:--:|
-[Timberland Pro Boots](https://www.amazon.com/dp/B000XEWLO6/?coliid=I3NKV6O6EO3NTT&colid=2586DLHB05EVL&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)|$106|A mainstay at this point, size 10.5 or 11 (close enough for both)
 [Heat Tech Shirts](https://www.uniqlo.com/us/en/products/E461001-000/00?colorDisplayCode=00&sizeDisplayCode=004)|$6|Medium - black and white please
 [Airism Shirts](https://www.uniqlo.com/us/en/products/E454311-000/)| $14| Size M - black or white
 
@@ -36,10 +35,8 @@ Fishing Waders (stocking, not booted)| Varies Greatly| Please neoprene or gorete
 |Item|Price|Notes|
 |:--:|:--:|:--:|
 [Bass distortion pedal](https://reverb.com/p/zvex-basstortion)|~$200|Specifically, this pedal. Vendor doesn't matter, but it's a hard to find pedal. 
-[Bluetooth adapters for headset](https://www.linsoul.com/products/kz-az10)|$43| I have the headphones, bluetooth would be great for these
 [Sans Amp Preamp Pedal](https://reverb.com/item/9887418-tech-21-sansamp-character-series-vt-bass-di)| ~$240| Used is fine! 
 Rickenbacker 4003 Bass|~$2500|Not natural maple finish
-[In-ear monitoring system](https://www.amazon.com/LEKATO-Transmitter-Automatic-Rehearsal-Performance/dp/B0B3DR71RY)|$48| One reciever and transmitter please
 [15 Ft XLR Cable](https://www.musiciansfriend.com/accessories/musicians-gear-lo-z-xlr-microphone-cable/338001000002000?rNtt=xlr%20cables&index=12)|$13 | 15 ft please, no need for the fancy cables
 [18 Ft Instrument Cable](https://www.musiciansfriend.com/accessories/fender-deluxe-series-straight-to-angle-instrument-cable/l47917000003001)| $23| 18.6ft black tweed please
 [Guitar Hangers](https://www.amazon.com/Hercules-GSP38WB-PLUS-Auto-Swivel-Yoke-Hanger/dp/B07BBNS4ZL?)|~$20/ea| Hercules brand please, the cheaper ones aren't up to snuff for Bass guitars.
